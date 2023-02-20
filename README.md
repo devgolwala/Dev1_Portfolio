@@ -7,3 +7,9 @@ My first Learning portfolio
 ## Sports - Soccer
 
 * I have a bit of an obsession with Sports, especially soccer, lets get into it and I will try to note down why the Greatest of All Time is Cristiano Ronaldo. 
+
+Cristiano Ronaldo vs Lionel Messi has been a rivalry for the ages. Anyone that follows soccer knows who these two are, well I am going to compare the two based on facts and obviously take into account the proven political affairs that favoured one over the other. 
+
+As fans all we wish for is that our Team Win all games by hook or crook. And in the sport of soccer the team that scores the most goals in a game essentially wins, which makes goal scoring the most important factor in this Sport.
+
+** Atheletism ** 
