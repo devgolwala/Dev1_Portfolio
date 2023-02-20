@@ -6,4 +6,4 @@ My first Learning portfolio
 
 ## Sports - Soccer
 
-* I have a bit of an obsession with Sports, especially soccer, let get into it and I will try to note down why the Greatest of All Time is Cristiano Ronaldo. 
+* I have a bit of an obsession with Sports, especially soccer, lets get into it and I will try to note down why the Greatest of All Time is Cristiano Ronaldo. 
